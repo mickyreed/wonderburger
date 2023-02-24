@@ -1,6 +1,8 @@
 Top Bun
 
+Lettuce
 
+Beef Patty
 
 
 
