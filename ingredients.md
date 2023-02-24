@@ -1,10 +1,10 @@
 Top Bun
 Lettuce
-Cheese
 bacon
 lettuce
-
+pepper spray
+mayo
 Lettuce
-
+Cheese
 Beef Patty
 Bottom Bun
